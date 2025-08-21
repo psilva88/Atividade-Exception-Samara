@@ -13,8 +13,6 @@ Grupo:
 
 • Arthur Pereira Silva
 
-• Helder Luiz Silva Lima Filho
-
 • Luiz Gustavo Barbosa Machado
 
 • Rodrigo Lira Rodrigues
